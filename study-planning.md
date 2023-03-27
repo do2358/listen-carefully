@@ -81,3 +81,141 @@ Started: 24/03/2023
 
 
 ## Unit 2
+### Names
+#### Activity 1
+
+#### Activity 2
+1. Shaw NG
+2. Anfio Thomas NG
+3. Johnson
+4. Gray
+5. Richmond
+6. Schmidt NG
+7. Harrison NG
+8. David
+
+#### Activity 5
+1. Tosh Asada
+2. Monica Monning NG
+3. Carl Jass NG
+4. Sofia Jacobs NG
+5. Kiata Job NG
+6. La Tull Sa NG
+7. Soaswb Richard NG
+8. Matha NG
+
+#### Activity 6
+
+### Meeting people
+
+#### Activity 1
+1. Fine, thanks
+2. yes, Lovely
+3. Great, and yours?
+4. Oh, ok, thanks
+5. Mine is Jenny, hello NG
+6. NG
+7. Yes, you too.
+8. I do do NG
+9. lock to beach NG
+10. yes, ok
+11. You too.
+
+#### Activity 2
+1. x
+2. x
+3. b
+4. b
+5. x
+6. a
+
+### Places
+#### Activity 1
+1. a
+2. b
+3. b
+4. 1
+5. a
+6. b
+7. a
+8. a
+
+#### Activity 2
+1. c
+2. c
+3. a
+4. a
+5. c
+6. a
+7. b
+8. a
+
+#### Activity 3
+1. b
+2. a
+3. b
+4. a
+5. a
+6. b
+7. b
+8. b
+
+#### Activity 3
+1. 1 haaii
+2. SA
+  1
+
+affice 2
+
+eurcewn2 
+2
+
+assia2
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
